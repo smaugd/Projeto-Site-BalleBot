@@ -7,5 +7,4 @@
 
 - Tudo enriquece seu conhecimento.
 
-**Pratiquê, praticarê, nunca parem de praticar!
-** 🐉
+**Pratiquê, praticarê, nunca parem de praticar!** 🐉
